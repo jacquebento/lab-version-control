@@ -50,6 +50,7 @@ Instructions:
 ### Spaghetti and Meatballs
 
 Ingredients:
+- 1 sliced onion
 - 1 pound spaghetti
 - 1 pound ground beef
 - 1/2 cup bread crumbs
