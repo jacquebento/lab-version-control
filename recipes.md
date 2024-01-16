@@ -113,3 +113,17 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Chocalate Billionaries
+
+Ingredients:
+- 1 package (14 ounces) caramels
+- 3 tablespoons water
+- 1-1/2 cups chopped pecans
+- 1 cup Rice Krispies
+- 3 cups milk chocolate chips
+- 1-1/2 teaspoons shortening
+
+Instructions:
+1. Line 2 baking sheets with waxed paper; grease the paper and set aside. In a large heavy saucepan, combine the caramels and water; cook and stir over low heat until smooth. Stir in pecans and cereal until coated. Drop by teaspoonfuls onto prepared pans. Refrigerate for 10 minutes or until firm.
+2. Meanwhile, in a microwave, melt chocolate chips and shortening; stir until smooth. Dip candy into chocolate, coating all sides; allow excess to drip off. Place on prepared pans. Refrigerate until set. Store in an airtight container.
