@@ -50,6 +50,7 @@ Instructions:
 ### Spaghetti and Meatballs
 
 Ingredients:
+- 1 sliced onion
 - 1 pound spaghetti
 - 1 pound ground beef
 - 1/2 cup bread crumbs
@@ -75,6 +76,7 @@ Ingredients:
 - 2 boneless, skinless chicken breasts
 - Salt and pepper to taste
 - 2 tablespoons olive oil
+- 1 tablespoon of mustard
 - 4 slices Swiss cheese
 - 4 hamburger buns
 - Lettuce
